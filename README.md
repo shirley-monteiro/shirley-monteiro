@@ -1,4 +1,4 @@
-# 🚀 Shirley Monteiro | Analista de Tecnologia | Product Manager | Gerente de Projetos
+# 🚀 Shirley Monteiro | Analista de Tecnologia | Product Manager | Gerente de Projetos | Docente do Ensino Superior
 
 ## 🔹 Sobre mim  
 Sou uma profissional apaixonada por **inovação, tecnologia e gestão de projetos**. Tenho experiência na liderança de equipes e no desenvolvimento de soluções que geram impacto real, sempre focada em qualidade, eficiência e rapidez. Minha atuação combina **Product Management, Scrum e metodologias ágeis** para entregar projetos com excelência.
